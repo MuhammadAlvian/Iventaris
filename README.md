@@ -1,3 +1,2 @@
-# IventarisRamesty
+# Web Iventaris By Ramesty
 
-# Kalau Bisa Sekalian Tambahin Gambar Hehe :)
